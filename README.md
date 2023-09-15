@@ -1,6 +1,6 @@
 ### Hi there guys👋
 
-Let us introduce ourselves.
+Let us introduce ourselves. 👨‍🎓
 
 We are a group of students who believe in self-control. This is why we made games available for everyone.
 
